@@ -22,7 +22,7 @@
 		Bangalore, Karnataka, India.
 		+91-9980923226.
 		devopstrainingblr@gmail.com
-		Hello, Bro
+		Hello, Bro How r U
 	</span>
 </div>
 <hr>
